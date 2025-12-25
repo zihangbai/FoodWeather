@@ -269,7 +269,7 @@ Organic Baby Carrots → Hearty Vegetable Soup | 0.02 | 1.00 | 5.50
 
 ## 联系方式
 
-如有问题或建议，请联系项目团队。
+如有问题或建议，请联系我3814154991@qq.com。
 
 ---
 
